@@ -1,5 +1,4 @@
-
-Society Management
+<br>Society Management  -</b>
 <br>
 <b>Introduction -</b>
 </br>
